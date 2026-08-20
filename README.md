@@ -1,4 +1,4 @@
-# Hi, I'm SKSSSX 👋
+# Hi, I'm sanks 👋
 
 **Full-Stack Engineer · Web Engineering · AI-Assisted Development**
 
